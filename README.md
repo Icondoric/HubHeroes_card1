@@ -1,0 +1,1 @@
+# HubHeroes_card1
